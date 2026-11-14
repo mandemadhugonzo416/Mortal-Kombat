@@ -217,4 +217,4 @@ Mortal Kombat Project is offered as a full free version with all features and up
 Dive into the action-packed world of Mortal Kombat Project and unleash your fighting skills. **Download now for free and experience the thrill of battle!**
 
 ---
-**Last updated:** 2026-11-14 07:10:40 UTC
+**Last updated:** 2026-11-14 14:37:26 UTC
